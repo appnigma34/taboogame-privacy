@@ -85,4 +85,4 @@ We may update this Privacy Policy from time to time. Updates will be posted on t
 ## 9. Contact Us
 If you have questions about this Privacy Policy, contact us:
 
-**Email:** [your-email@example.com]
+**Email:** [appnigma34@gmail.com]
